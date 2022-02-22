@@ -7,7 +7,8 @@
 - 📫 Me pueden contactar por:
       email:    esneydersa@hotmail.com
       Facebook: https://www.facebook.com/esneyder.saavedracardenas
-      LinkedIn: https://www.linkedin.com/in/esneyder-saavedra-cardenas-8b7a6111b/
+      LinkedIn: https://www.linkedin.com/in/esneyder-saavedra-cardenas/
+      Celular: (+57) 3142692084
 
 
 
